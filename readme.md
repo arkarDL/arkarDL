@@ -1,1 +1,1 @@
-![Cute Pug](https://media.giphy.com/media/3oKIPsx2VAYAgEHC12/giphy.gif)
+![Cute Pug](https://media.giphy.com/media/3oriO1OOnDDpofMcM0/giphy.gif)
